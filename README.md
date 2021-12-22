@@ -1,2 +1,2 @@
 # ReaLog
-reading blog
+- 2021.11 《斜屋犯罪》岛田庄司
